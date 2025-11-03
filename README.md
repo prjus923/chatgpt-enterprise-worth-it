@@ -1,4 +1,4 @@
-# htlc# ChatGPT Enterprise 定价、功能和局限性：值得为大型企业买单吗?
+# ChatGPT Enterprise 定价、功能和局限性：值得为大型企业买单吗?
 
 ---
 
